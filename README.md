@@ -12,5 +12,22 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: da boom na da noom na namena
+
 -->
+
+
+My Name is Mitch, not more, not less.
+My interest start from learning how to code to visualize and create.
+
+Some facts about me:
+
+- 🎚️ Lv IRL:      34
+- 📍 Location:    Germany
+- 💬 Languages:   German & English
+- 🎵 :            Da boom na da noom na namena
+
+
+
+
+
